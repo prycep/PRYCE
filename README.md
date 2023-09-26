@@ -18,4 +18,6 @@
 ## Pictures
 ![Angel and her assistant](IMG_0041.png)
 Angel and her assistant (First image on iPhone) [^1]
-
+![Angel2](dog2.png)
+![Angel3](dog3.png)
+![Angel4](dog4.jpg)
