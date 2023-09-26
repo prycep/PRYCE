@@ -1,4 +1,3 @@
-
 # PRYCE's DOG FANPAGE                                         
 ## His dog is named **_ANGEL_**
 ### When she sleeps, natural disasters happen. She is not awake to protect the world.
@@ -13,3 +12,4 @@
 
 ## Trivia
 ### 1. She tore her ligament in the year
+### 2. She used to have a paw print birthmark
