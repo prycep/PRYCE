@@ -1,5 +1,5 @@
 
-#`#0969DA' PRYCE's DOG FANPAGE                                         
+# PRYCE's DOG FANPAGE                                         
 ## His dog is named **_ANGEL_**
 ### When she sleeps, natural disasters happen. She is not awake to protect the world.
 #### She just sleeps
@@ -12,4 +12,4 @@
 ### Race: Black and White (Boston Terrier)
 
 ## Trivia
-### She tore her ligament in the year
+### 1. She tore her ligament in the year
