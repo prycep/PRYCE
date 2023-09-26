@@ -19,4 +19,3 @@
 ![Angel and her assistant](IMG_0041.png)
 
 
-
