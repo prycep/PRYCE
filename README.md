@@ -17,5 +17,5 @@
 
 ## Pictures
 ![Angel and her assistant](IMG_0041.png)
-	Here's a sentence with a footnote. [^1]
+Angel and her assistant (First image on iPhone) [^1]
 
