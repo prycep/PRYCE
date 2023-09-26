@@ -11,6 +11,11 @@
 ### Race: Black and White (Boston Terrier)
 
 ## Trivia
-### 1. She tore her ligament in the year
+### 1. She tore her ligament in the year 2019
 ### 2. She used to have a paw print birthmark
-### 3. She has fallen off the table
+### 3. She has fallen off the table once
+
+## Pictures
+![Angel and her assistant](https://drive.google.com/file/d/1XIl4SY0-yF8ieQM3v1FG1GIoJn66FAY8/view?usp=drive_link)
+
+
