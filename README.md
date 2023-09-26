@@ -16,7 +16,7 @@
 ### 3. She has fallen off the table once
 
 ## Pictures
-![Angel and her assistant](https://drive.google.com/file/d/1XIl4SY0-yF8ieQM3v1FG1GIoJn66FAY8/view?usp=sharing)
+![Angel and her assistant](IMG_0041.HEIC)
 ![Pomeranian](https://www.akc.org/wp-content/uploads/2017/11/Pomeranian-On-White-01.jpg)
 
 
