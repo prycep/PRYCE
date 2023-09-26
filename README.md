@@ -1,5 +1,6 @@
+`#0969DA`
 # PRYCE's DOG FANPAGE                                         
-## His dog is named ANGEL
+## His dog is named **_ANGEL_**
 ### When she sleeps, natural disasters happen. She is not awake to protect the world.
 #### She just sleeps
 ## THIS IS AN ARCHIVE OF EVERY SINGLE PICTURE EVER COMPILED OF ANGEL THE DOG. ANGEL IS THE ANGEL. 
